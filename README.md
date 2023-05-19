@@ -1,1 +1,5 @@
-# Exercice-Cadavre-Exquis-ilias
+Un meunier était peu à peu tombé dans la misère et il n’avait plus rien que son moulin avec, derrière, un grand pommier. Un jour qu’il avait été chercher du bois dans la forêt, un vieil homme qu’il n’avait encore jamais vu s’approcha de lui et lui dit... 
+
+"Cher meunier, je connais ta situation difficile. En échange d'un geste de générosité, je te donnerai une pomme magique qui changera ta vie. Plante-la près de ton moulin et attends l'aube pour voir son pouvoir se révéler." Intrigué et plein d'espoir, le meunier accepta le don du vieil homme, se demandant quelle transformation allait opérer cette mystérieuse pomme.
+
+Suivant le sentier menant hors de la fôret, le meunier était en train de gambader plein d'allégresse s'imaginant déjà qu'une luxueuse villa avec piscine, jacuzzi et écran 4k sortirait de la pomme lorsque le jour suivant poindrait. Il perdait la tête en songeant à toutes ces merveilles et, prit dans ses pensées, eut un réflexe pour le moins étrange.Il croqua la pomme magique. 
